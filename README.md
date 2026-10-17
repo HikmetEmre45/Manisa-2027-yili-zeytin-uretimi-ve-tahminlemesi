@@ -1,0 +1,1 @@
+# Manisa-2027-yili-zeytin-uretimi-ve-tahminlemesi
